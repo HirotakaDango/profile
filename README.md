@@ -20,4 +20,4 @@ The best way to get in touch is by [sending me an email](mailto:your.email@examp
 
 ## ⚡ Fun Fact
 
-Did you know that I'm a big fan of **sci-fi and mystery movies**? Some of my favorites include **Sherlock Holmes**, **The Matrix**, and **All from MCU**.
+Did you know that I'm a big fan of **sci-fi, yuri, slice of life, adventure and mystery anime**? Some of my favorites include **The Matrix**, **JoJo's Bizarre Adventure**, **Yuru Yuri**, and **Almost all anime with yuri genre**.
