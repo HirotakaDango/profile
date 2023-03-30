@@ -16,8 +16,8 @@ I'm always happy to chat about all things development-related. If you're interes
 
 ## 📫 How to Reach Me
 
-The best way to get in touch is by [sending me an email](mailto:your.email@example.com). I'm also active on [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile) and [Twitter](https://twitter.com/your-twitter-handle), so feel free to connect with me there as well.
+The best way to get in touch is by [sending me an email](mailto:your.email@example.com). I'm also active on [Twitter](https://twitter.com/your-twitter-handle), so feel free to connect with me there as well.
 
 ## ⚡ Fun Fact
 
-Did you know that I'm a big fan of **sci-fi movies**? Some of my favorites include **Blade Runner**, **The Matrix**, and **Inception**.
+Did you know that I'm a big fan of **sci-fi and mystery movies**? Some of my favorites include **Sherlock Holmes**, **The Matrix**, and **All from MCU**.
